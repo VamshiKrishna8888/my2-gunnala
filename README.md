@@ -1,6 +1,6 @@
 # Vamshi Krishna Gunnala
-###### Favorite vacation spot:Labak
-I love to visiting **Labak** . The places is **Scenery** is beautiful.
+###### Favorite vacation spot:Ladak
+I love to visiting **Ladak** . The places is **Scenery** is beautiful.
 ---
 
 Vacation spot
