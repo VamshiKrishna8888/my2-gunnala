@@ -18,3 +18,4 @@ Activities
  * Sashimi
 
 ---
+For more about me, check out 
